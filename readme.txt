@@ -19,3 +19,5 @@ what unholy retribution your little "clever" comment was about to bring down
 upon you, maybe you would have held your fucking tongue. But you couldn't,
 you didn't, and now you're paying the price, you goddamn idiot. I will shit
 fury all over you and you will drown in it. You're fucking dead, kiddo.
+
+meme school
